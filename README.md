@@ -12,5 +12,4 @@ I care about the development of human sciences and I think the need is in this r
 
 
 
-
-![07hiring-articleLarge-v2](https://user-images.githubusercontent.com/124044359/230730049-f5819f16-c6cd-4b5f-a7b7-ee28d762843b.gif)
+![mini](https://user-images.githubusercontent.com/124044359/230730396-ab1df1bd-2286-4887-b1c5-3c9adfd89781.gif)
