@@ -11,5 +11,6 @@ My other goal is; to be able to use social sciences actively in integration with
 I care about the development of human sciences and I think the need is in this regard.
 
 
+![07hiring-articleLarge-v2](https://user-images.githubusercontent.com/124044359/230730438-06da6a17-4e2f-4f64-80ad-173f57d6e686.gif)
 
-![mini](https://user-images.githubusercontent.com/124044359/230730396-ab1df1bd-2286-4887-b1c5-3c9adfd89781.gif)
+
