@@ -10,7 +10,7 @@ My other goal is; to be able to use social sciences actively in integration with
 
 I think of energy economy because there is climate change in the future and it will affect us all.
 
-![tenor (2)](https://github.com/ilkerxdev/ilkerxdev/assets/124044359/ba7b47e5-6124-4f57-aca7-cb615770c8bc)
+
 
 ![07hiring-articleLarge-v2](https://user-images.githubusercontent.com/124044359/230730438-06da6a17-4e2f-4f64-80ad-173f57d6e686.gif)
 
