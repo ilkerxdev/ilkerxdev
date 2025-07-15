@@ -1,7 +1,4 @@
 ### Hi👋, I'm İlker Yılmaz
-
-Increase your repos and support the work instead of putting cool logos here
-
 I'm 19 years old. I'm interested in economics and cyber security. I'll be starting my electronics and communications engineering degree next year. Welcome to my entertainment area :))))
 
 
